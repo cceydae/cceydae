@@ -1,6 +1,6 @@
 ### Hi there! 👋
 
-![Linkedin](www.linkedin.com/in/ceydaeser)
+[Linkedin]
 
 
 
