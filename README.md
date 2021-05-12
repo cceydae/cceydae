@@ -1,6 +1,7 @@
 ### Hi there! 👋
 
-[Linkedin](www.linkedin.com/in/ceydaeser)
+![Linkedin]![image](https://user-images.githubusercontent.com/76183510/117904158-7e354600-b2d9-11eb-80ab-37441f3e4bb5.png)
+
 
 
 
