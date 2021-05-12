@@ -1,7 +1,6 @@
 ### Hi there! 👋
 
 [![image](https://user-images.githubusercontent.com/76183510/117904428-061b5000-b2da-11eb-8269-3ff44233a191.png)](https://www.linkedin.com/in/ceydaeser/)
-[![image](https://user-images.githubusercontent.com/76183510/117904480-1c291080-b2da-11eb-91ac-12dab31d0b75.png)](ceydae.1040@gmail.com)
 
 
 
