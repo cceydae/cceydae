@@ -5,7 +5,7 @@
 [![image](https://user-images.githubusercontent.com/76183510/117905232-87271700-b2db-11eb-92cf-f8c30f08a724.png)
 ](https://www.youtube.com/channel/UCKkx9iiNkWhjWUVSIOm9f7g)
 [![image](https://user-images.githubusercontent.com/76183510/117907545-acb61f80-b2df-11eb-8610-6adcb737db7f.png)
-](www.gmail.com/ceydae.1040@gmail.com)
+](https://www.gmail.com/ceydae.1040@gmail.com)
 
 
 <!--
