@@ -1,7 +1,7 @@
 ### <Hello World!👋
 
 [![image](https://user-images.githubusercontent.com/76183510/117904428-061b5000-b2da-11eb-8269-3ff44233a191.png)](https://www.linkedin.com/in/ceydaeser/)
-
+[![image](https://user-images.githubusercontent.com/76183510/117905001-12ec7380-b2db-11eb-98a0-99e8d1c9d3ef.png)](https://www.youtube.com/channel/UCKkx9iiNkWhjWUVSIOm9f7g)
 
 
 
