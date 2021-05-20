@@ -2,7 +2,7 @@
 
 [Linkedin](https://www.linkedin.com/in/ceydaeser/)
 
-[SisfilmAnimation YouTube](https://www.youtube.com/channel/UCKkx9iiNkWhjWUVSIOm9f7g)
+[YouTube](https://www.youtube.com/channel/UCKkx9iiNkWhjWUVSIOm9f7g)
 
 
 <!--
