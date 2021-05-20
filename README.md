@@ -1,6 +1,8 @@
 ## > Hello, world!_
 
 [![image](https://user-images.githubusercontent.com/76183510/117904428-061b5000-b2da-11eb-8269-3ff44233a191.png)
+![image](https://user-images.githubusercontent.com/76183510/119037576-d4317a00-b9ba-11eb-9f9c-041c3cedc2ae.png)
+
 ](https://www.linkedin.com/in/ceydaeser/)
 [![image](https://user-images.githubusercontent.com/76183510/117905232-87271700-b2db-11eb-92cf-f8c30f08a724.png)
 ](https://www.youtube.com/channel/UCKkx9iiNkWhjWUVSIOm9f7g)
