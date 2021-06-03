@@ -1,7 +1,4 @@
 ## > Hello, world!_
-
-[Linkedin](https://www.linkedin.com/in/ceydaeser/)
-
 [YouTube](https://www.youtube.com/channel/UCKkx9iiNkWhjWUVSIOm9f7g)
 
 
